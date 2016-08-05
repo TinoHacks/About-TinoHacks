@@ -14,4 +14,4 @@ we are not a club yet. this will update when we are a club. (assuming we become 
 
 We are currently affiliated and allied with the Strategic Defense Coalition.
 We will report back to the coalition when victory is ours.
-http://vignette1.wikia.nocookie.net/callofduty/images/5/5c/SDC_Multiplayer_Icon_BOII.png/revision/latest?cb=20121226062706
+![](http://vignette1.wikia.nocookie.net/callofduty/images/5/5c/SDC_Multiplayer_Icon_BOII.png/revision/latest?cb=20121226062706)
